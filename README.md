@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @stomasky!
 - 📊 I’m an emerging data analyst.
-- 🌱 Master of Science in Information Studies (Spring 2023)
+- 🌱 Master of Science in Information Studies - 2023
 - 🤘 THE University of Texas
 - 🐕🐕 I have two of the best dogs around!
-- 🌲 Often found lost on a trail in ATX.
+- 🌲 Often found wandering a trail in ATX.
 - 💬 https://www.linkedin.com/in/stephanie-tomasky/
